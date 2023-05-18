@@ -1,1 +1,1 @@
-Joel si lees esto eres gay y aparte thegmae
+Joel si lees esto eres gay y aparte the game
